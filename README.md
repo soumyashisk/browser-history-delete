@@ -1,3 +1,5 @@
+## ⚠️ I MADE THIS FOR FUN, DON'T TAKE IT SERIOUSLY
+
 # 🔥 Browser History Delete 🔥
 
 > **"I was just doing research, I swear!"** - Every developer ever
