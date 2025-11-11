@@ -1,4 +1,4 @@
-## ⚠️ I MADE THIS FOR FUN, DON'T TAKE IT SERIOUSLY
+## ⚠️ I MADE THIS FOR FUN, U BETTER TAKE IT AS A JOKE
 
 # 🔥 Browser History Delete 🔥
 
